@@ -1,3 +1,3 @@
-# Yunus_mohammed-Web_proje
+# Yunus_mohammed-Web_project
 
 
